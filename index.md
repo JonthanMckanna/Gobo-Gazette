@@ -1,6 +1,6 @@
 ## Welcome to Gobo Gazette
 
-This is the officail website of The Gobo Gazette
+This is the officail website of The Gobo Gazette.
 
 To get a job or write write your at the Gobo Gazette click [here](https://7ds5hg75gr5.typeform.com/to/oaL8XkMC).
 
